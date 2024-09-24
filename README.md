@@ -5,3 +5,4 @@
 
 ![hello_world](https://github.com/user-attachments/assets/68b84d26-382e-42e6-b51b-728a35a6461c)
 
+![Technology_logo](https://github.com/user-attachments/assets/bb05585d-68e7-47ab-a9bb-9d5040bc9573)
