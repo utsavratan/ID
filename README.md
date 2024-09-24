@@ -8,3 +8,9 @@
 ![Technology_logo](https://github.com/user-attachments/assets/bb05585d-68e7-47ab-a9bb-9d5040bc9573)
 
 ![misterutsav](https://github.com/user-attachments/assets/91b13220-ac8d-4867-8f16-ae8badf41acb)
+
+https://github.com/user-attachments/assets/8a7a6dd4-de4e-4ba4-9ede-1b6f58917cbd
+
+![muesports_logo](https://github.com/user-attachments/assets/6ec80c8d-1825-4f75-9ac6-d97c2ebf99d9)
+
+![K R _Mangalam_University_logo svg](https://github.com/user-attachments/assets/1c2fd9db-96e0-46df-bfc5-620b286b34bf)
