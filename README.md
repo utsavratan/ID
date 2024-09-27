@@ -5,6 +5,7 @@
 
 ![hello](https://github.com/user-attachments/assets/4334f74b-3371-4b7d-b6eb-7de4ddad5df1)
 
+[![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/misterutsav/) 
 
 ![file](https://github.com/user-attachments/assets/4dbeb616-5521-42ee-b57a-0464f62bcff1)
 
