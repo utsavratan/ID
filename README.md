@@ -20,3 +20,4 @@ https://github.com/user-attachments/assets/8a7a6dd4-de4e-4ba4-9ede-1b6f58917cbd
 ![muesports_logo](https://github.com/user-attachments/assets/6ec80c8d-1825-4f75-9ac6-d97c2ebf99d9)
 
 ![K R _Mangalam_University_logo svg](https://github.com/user-attachments/assets/1c2fd9db-96e0-46df-bfc5-620b286b34bf)
+![utsav](https://github.com/user-attachments/assets/d5ab1025-a688-4615-a08a-05b5d55e68c9)
