@@ -18,6 +18,6 @@ https://github.com/user-attachments/assets/8a7a6dd4-de4e-4ba4-9ede-1b6f58917cbd
 
 ![K R _Mangalam_University_logo svg](https://github.com/user-attachments/assets/1c2fd9db-96e0-46df-bfc5-620b286b34bf)
 ![utsav](https://github.com/user-attachments/assets/d5ab1025-a688-4615-a08a-05b5d55e68c9)
-<img width="1439" alt="Screenshot 2025-04![WhatsApp Image 2025-06-08 at 21 44 43](https://github.com/user-attachments/assets/c79df43f-a77f-4169-a3e0-1ef02e69cf48)
+
 ![WhatsApp Image 2025-06-08 at 21 44 43](https://github.com/user-attachments/assets/6facb516-7c85-42d9-86bf-1059d6d2017a)
 ![anuvrat](https://github.com/user-attachments/assets/3b1cd24e-a5fc-464e-a837-0584a70f5162)
