@@ -3,6 +3,9 @@
 <h1>misterutsav</h1>
 <img ![pfp] src="https://github.com/user-attachments/assets/3b7d6108-1dd0-4c36-8f5c-5b4043fe2be3"/>
 
+![valorant](https://github.com/user-attachments/assets/a1424c13-9661-4a5e-8c84-11abf93901e5)
+
+
 
 <img width="1536" height="1024" alt="file_000000005a3871fab01f0b7d8738e598" src="https://github.com/user-attachments/assets/a4c92818-a762-400a-a34d-9e15bb5fa2a4" />
 
